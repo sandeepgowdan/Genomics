@@ -1,2 +1,0 @@
-assbzjannbz A
-asknaXZSNaz
